@@ -1,2 +1,0 @@
-# seyhakupdate
-កាសាកល្បង
